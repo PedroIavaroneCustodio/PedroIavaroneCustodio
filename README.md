@@ -15,8 +15,8 @@
 * 🧪 Survival Analysis.
 
 ## Find me around the world 🌎
-* [Linkedln](linkdolinkedln)
-* [Instagram](linkdoinstagram)
+* [Linkedln](https://www.linkedin.com/in/pedro-iavarone-cust%C3%B3dio-38a9572a5/)
+* [Instagram](https://www.instagram.com/pedroiavarone/)
 
 ## My projects
 * [Projeto 1](linkdoprojeto1)
